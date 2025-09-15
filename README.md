@@ -3,7 +3,7 @@
 Our multidisciplinary team brings both technical expertise and student perspective:<br/>
 **1.Tejas Mishra**<br/>
 **2.Vansh Saini**<br/>
-**3.Arpit Goyal**<br/>
+
 **4.Anupam**<br/>
 **5.Desh Deepak**<br/>
 **6.Shreya Saxena**<br/>
